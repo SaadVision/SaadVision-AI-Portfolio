@@ -18,6 +18,6 @@ I specialize in building **intelligent systems** that optimize workflows and inc
 ## 📂 Stay Connected  
 📢 More projects and updates coming soon!  
 🔗 **LinkedIn:** [Your LinkedIn Link]  
-📧 **Contact:** [Your Email]  
+📧 **Contact:** [saad.automation.ai@gmail.com]  
 
 
